@@ -1,2 +1,2 @@
-# ma61str.github.io
+# Кирилл Родионов
 just me
